@@ -1,0 +1,1 @@
+I am here to share a yummy, quick and easy milkshake recipe. You just need to follow my process while using the proper ingredients to get the best banana shake ever! Enjoy.
